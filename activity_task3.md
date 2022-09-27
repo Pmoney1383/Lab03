@@ -1,0 +1,1 @@
+![sample - Parsa Aminian](image_task3.png)
